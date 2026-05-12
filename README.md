@@ -1,1 +1,0 @@
-# Tinmorry-Qidi_Ocraslicer
